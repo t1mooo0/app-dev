@@ -7,3 +7,4 @@
 3. One Piece
 4. Bocchi The Rock
 5. Frieren: Beyond Journey's End
+### Pogi ni Gerone
