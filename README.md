@@ -3,7 +3,9 @@
 
 ## **List of my Favorite Animes**
 1. That time I Got Reincarnated As a Slime
-   ![image](https://github.com/user-attachments/assets/ee6c050e-1602-4be5-90dc-5d468ecc2a0d)
+  
+ ![image](https://github.com/user-attachments/assets/5d9875b3-26e5-41d6-bc4b-084a87282f8f)
+
 
 2. Overlord
    ![Ainz Ooal Gown](https://i.pinimg.com/736x/64/0d/39/640d398f01d0b6a62ed81d177292300d.jpg)
